@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @AbdulkarimSalad
+# 👋 Hi, 
 
 ## 👀 I’m interested in
 - Hydrogeology and Integrated Water Resources Management (IWRM)
